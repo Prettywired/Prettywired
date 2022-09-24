@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+** What I like to do?**
+-learn new languages (programming languages :<)-
+-solve problems-
+-read-
